@@ -1,2 +1,2 @@
 # odin-recipes
-LET HIM COOOOOOOK
+LET HIM COO🔥OO🔥OO🔥OOK
